@@ -1,4 +1,4 @@
-# Hey, I'm Ben - aka [NoWhere][youtube] 
+# Hey, I'm Ben - aka NoWhere
 
 ## Just a random guy
 
