@@ -1,4 +1,4 @@
-# Hey, I'm Ben - aka NoWhere
+NoWhere aka Ben
 
 ## Just a random guy
 
