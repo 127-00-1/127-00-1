@@ -2,7 +2,7 @@ NoWhere aka benJ
 
 ## Just a random guy
 
-- 🔭 Currently working on my college course
+- 🔭 Currently working on Learning java and earning P's
 - 🌱 I’m currently learning your mum
 - 👯 Only INZO collaboration 
 - 🥅 2022 Goals: Learn your dad >:)
